@@ -7,4 +7,4 @@
 <hr>
 
 - 帥哥
-![](https://imgur.com/OTIFXFh)
+![](https://i.imgur.com/OTIFXFh.jpeg)

@@ -5,3 +5,6 @@
 - 學歷：[輔仁大學經濟系](https://www.economics.fju.edu.tw/)
 - 興趣：打球、看電影
 <hr>
+
+- 帥哥
+![](https://imgur.com/OTIFXFh)

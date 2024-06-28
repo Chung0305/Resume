@@ -6,6 +6,9 @@
 - 興趣：打球、看電影
 <hr>
 
+1. abc
+2. def
+3. ghi
 - 帥哥
 ![](https://i.imgur.com/OTIFXFh.jpeg)
 ![](6405d7f74f4518491ed2741ed6a94da0.jpeg)

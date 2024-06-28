@@ -8,7 +8,7 @@
 
 - 帥哥
 ![](https://i.imgur.com/OTIFXFh.jpeg)
-
+![](6405d7f74f4518491ed2741ed6a94da0.jpeg)
 <hr>
 
 ### 自我簡介
